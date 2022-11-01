@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Franz3
+- 👀 I’m interested in a lot
+- 🌱 I’m currently learning a lot ^^
